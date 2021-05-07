@@ -1,0 +1,1 @@
+An easy and popular cheesy pasta recipe made with creamy white sauce with soft and tasty penne pasta. The recipe is very much inspired from the italian white-coloured pasta but tweaked and adjusted to the indian taste buds. It can be either served for lunch or dinner or as a perfect lunch box recipes for kids and adult..
